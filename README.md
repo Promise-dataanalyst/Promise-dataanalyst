@@ -11,7 +11,7 @@
  📫 You can reach me via chimapromise123@gmail.com
   
 ### Connect with me on
-  https://www.linkedin.com/in/chima-promise/
+  [LINKEDIN](https://www.linkedin.com/in/chima-promise/)
 
 - ⚡ **Fun facts about me:**
 - Data Enthusiastic
