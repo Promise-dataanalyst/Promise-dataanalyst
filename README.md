@@ -8,7 +8,9 @@
  
  💞️ I’m looking to collaborate with Businesses (Startups) and like-minded professionals on Data analysis project.
   
- 📫 You can reach me via  [![images](https://github.com/user-attachments/assets/4cede89c-24bc-4138-b0dd-8d1d40261088)](chimapromise123@gmail.com)
+ 📫 You can reach me via 
+ 
+ [![images](https://github.com/user-attachments/assets/4cede89c-24bc-4138-b0dd-8d1d40261088)](chimapromise123@gmail.com)
 
   
 ### Connect with me on
