@@ -4,7 +4,7 @@
 
 👀 I’m interested in how Data Analysis and Visualization can help businesses make informed-decision.
   
-🌱 I just concluded my learning on how to query and visualize dataset using Structued Query Language and Power BI with The Incubator Hub.
+🌱 I just concluded learning how to query and visualize dataset using Structued Query Language and Power BI with The Incubator Hub.
  
  💞️ I’m looking to collaborate with Businesses (Startups) and like-minded professionals on Data analysis project.
   
